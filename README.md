@@ -1,2 +1,3 @@
 # Amaterasu
 SLAM Study
+NIGGA SLAYER COMING, GET THE FUCK OFF!
